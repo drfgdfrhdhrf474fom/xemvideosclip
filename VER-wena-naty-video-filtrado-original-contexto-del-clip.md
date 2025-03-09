@@ -1,9 +1,10 @@
 A pesar de que el escándalo de 'Wena Naty' se remonta a 2007, el impacto que ha tenido en la sociedad chilena persiste hasta el día de hoy. Este caso, que involucra la difusión no autorizada de un video íntimo de una menor de edad, ha suscitado un intenso debate sobre la privacidad digital y la responsabilidad legal en el ámbito cibernético.
 
-Difusión viral del video de Wena Naty
-El incidente que dio origen a este escándalo ocurrió cuando una niña de 14 años fue grabada sin su consentimiento mientras practicaba sexo oral con un compañero de clase. Gabriel Lasen Villalón, quien en ese momento tenía 17 años, capturó el video durante una reunión en un parque donde se habían consumido alcohol, tabaco y marihuana.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-El video se volvió viral rápidamente, lo que llevó a la joven a enfrentar no solo la expulsión de su escuela, sino también años de acoso y la exposición pública de su vida personal.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 Banner de tunota canal Whastsapp
