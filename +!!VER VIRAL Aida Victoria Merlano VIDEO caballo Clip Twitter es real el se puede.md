@@ -1,8 +1,10 @@
 El supuesto video completo de Aida Victoria Merlano en Twitter ha causado revuelo en sus seguidores y demás personas que se enteraron de lo que se trata y es que la creadora de contenido ha sido muy mencionada en redes sociales debido a un clip donde supuestamente sale relacionada con un caballo.
 
-El video se ha vuelto tendencia en la plataforma X (antes conocida como Twitter), y muchas personas han compartido imágenes donde ella sale junto a un caballo color café. El video se ha buscado mucho, sin embargo, no es fácil de encontrar, por eso aquí te contamos si realmente es ella la que aparece en el clip.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-La colombiana se ha referido con respecto a este material sensible que se ha difundido en diferentes redes sociales. Conoce lo qué dijo sobre el supuesto video donde aparece teniendo un encuentro con un caballo en una hacienda.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 El material sensible e incitante al morbo ha despertado la curiosidad de muchos seguidores, quienes han buscado el clip con términos como "video de Aida con caballo", "Aida y encuentro con caballo", entre otras búsquedas relacionadas con el contenido que ha sido tendencia en las últimas horas a nivel nacional e internacional.
