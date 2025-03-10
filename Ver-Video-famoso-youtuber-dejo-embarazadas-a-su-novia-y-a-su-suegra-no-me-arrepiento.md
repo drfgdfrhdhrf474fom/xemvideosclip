@@ -1,11 +1,11 @@
 Hay controversia en las redes sociales luego de que el youtuber jamaiquino Nicholas Hunter, más conocido en redes sociales como Nick Yardy, anunciara que será padre por partida doble. Pero no se trata de mellizos o gemelos, sino que embarazó a su novia y a su suegra.
 
-Youtuber tiene una relación con madre e hija
-El año pasado, Nick Yardy ya se había hecho tendencia en redes sociales al revelar que sostiene una relación poliamorosa con madre e hija, la cual surgió cuando también se enamoró de la mamá de su novia. Pero este año esta controversial relación dio un nuevo giro, con la llegada de dos bebés.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-(Lea también: Influenciador denunció haber sido estafado con boletos para el concierto de Shakira: “Ladrones” )
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-A través de sus redes sociales, madre, hija y el novio de las dos ha comunicado con gran alegría que ambas están embarazadas y que tienen ocho meses de gestación. "Tener un bebé junto a mi mamá es lo más emocionante", expresó Jade, la novia del creador de contenido.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 En el video anunciaron que la hija está esperando a una niña que llamarán Nicole, mientras que la mamá está esperando a un niño que será Nick Jr. "El matrimonio que tenemos... No creo que ninguno de nosotros haya sido más feliz", agregó en la grabación Dani, la suegra.
 
