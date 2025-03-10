@@ -1,13 +1,10 @@
 Nick Yardy, un influencer británico de origen jamaicano, se ha convertido en el centro de atención en las redes sociales tras una revelación que ha dejado a muchos de sus seguidores y detractores en estado de shock.
 
-Yardy, conocido por su contenido viral en TikTok, anunció recientemente que tanto su novia como su suegra están embarazadas, y él es el padre de ambos niños.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-"Gracias por compartir este momento tan especial con nosotros. ¡Tu amor y apoyo significan el mundo!", fue el mensaje que colocó el pasado 1 de marzo.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-En este posteo aparece junto a ambas mujeres, mostrando los dos ultrasonidos y besando el vientre de sus dos amadas, quienes son madre e hija.
-
-
-Tan solo unos días después, Nick compartió otro vídeo desde la revelación de género de las criaturas, donde @daniswingsxo dice que será "madre y abuela"; mientras que su hija @lovejadeteen manifiesta con mucho orgullo que se convertirá en "madre y hermana mayor".
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 ¿De verdad embarazó a su novia y suegra?
